@@ -1,7 +1,6 @@
 
 ## . 💤 : hello wrld ! ꈍᴗꈍ : ✮
 
-ೄྀ꧂˚⇨ they / them pref. transmasculine lean
+ೄྀ꧂˚⇨ they / them pref. transmasculine lean, interbinary 
 
-https://sl1nkyzz.straw.page/
 
